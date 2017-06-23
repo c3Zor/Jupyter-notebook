@@ -1,2 +1,2 @@
 # Mano
-Ai siai sudu malunas
+siaip siaip poto ikelsiu
