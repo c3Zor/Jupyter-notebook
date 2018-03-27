@@ -1,2 +1,1 @@
-# Mano
-siaip siaip poto ikelsiu
+# Zodziu counteris
